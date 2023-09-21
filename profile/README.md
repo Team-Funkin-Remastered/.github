@@ -10,4 +10,4 @@
 
 * ⭐Rail! - Animator and Musician!
 
-* GallantGlobz - Icon creator!
+* GallantGlobz - Artist!
