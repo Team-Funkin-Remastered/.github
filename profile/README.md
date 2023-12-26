@@ -1,3 +1,5 @@
+# Mod canned cuz lack of work lolz
+
 # TEAM FUNKIN' REMASTERED
 
 * The team behind it all...
